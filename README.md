@@ -17,7 +17,7 @@ The plan is to meet at Shibuya for lunch and then go to the Hanabi later in the 
 Lina and her Family will meet us at the Hanabi Station at 
 
 **
- Meeting time for lunch is in Shibuya : 12:30pm I posted the restaurant in the Notes section of the group.
-> After Lunch we visit some other places and then move to the Hanabi event around 5;00pm. 
-> If you have any interesting plances to visit after the lunch.very Optional suggestion is a disert in Ginza because of the hot summer. 
+* Meeting time for lunch is in Shibuya : 12:30pm I posted the restaurant in the Notes section of the group.
+* After Lunch we visit some other places and then move to the Hanabi event around 5;00pm. 
+* If you have any interesting plances to visit after the lunch.very Optional suggestion is a disert in Ginza because of the hot summer. 
 **
