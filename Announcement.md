@@ -1,4 +1,4 @@
-### FIRST ANNOUNCEMENT::mahjong::game_die: FRIDAY BOARD GAME :game_die::mahjong:
+## FIRST ANNOUNCEMENT::mahjong::game_die: FRIDAY BOARD GAME :game_die::mahjong:
 
 This Friday we plan having a game day: 
 * Games: **UNO**, **MONOPOLY** and the **AVALON** :XD. 
@@ -11,7 +11,7 @@ Kindly inform me if you would like to Join. The more the better feel free to inv
 
 
 
-### SECOND ANNOUNCEMENT::tada: :fireworks::boom::fireworks::boom:SATURDAY HANABI::boom::fireworks::boom::fireworks::tada:
+## SECOND ANNOUNCEMENT::tada: :fireworks::boom::fireworks::boom:SATURDAY HANABI::boom::fireworks::boom::fireworks::tada:
 Hi guys I will tell you the schedule of Saturday's [Hanabi](http://adachikanko.net/en/event/39thhanabi) and Lunch. 
 
 The plan is to meet at Shibuya for lunch and then go to the Hanabi later in the evening. (Do something inbetween)
