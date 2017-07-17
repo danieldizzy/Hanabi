@@ -1,1 +1,1 @@
-# Details about a small gathering.
+# Nothing here
