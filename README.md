@@ -21,4 +21,5 @@ The plan is to meet at Shibuya for lunch and then go to the Hanabi later in the 
 * Meeting point: **[Shibuya Station](https://goo.gl/maps/msb6HFRduCt)**  or at the [Restaurant](http://www.mkrestaurants.co.jp/shop/ "MK Restaurant Shabushabu Menu")
 * After Lunch we visit some other places and then move to the Hanabi event around 5;00pm. 
 * If you have any interesting plances to visit after the lunch.very Optional suggestion is a disert in Ginza because of the hot summer. 
+* Venue: **[Arakawa Riverbed (Tokyo Metro Chiyoda Line Bridge to Nishiarai Bridge) Senjigawa Ogawa Town  Adachi-ku, Tokyo Japan](http://adachikanko.net/en/event/39thhanabi)**
 
