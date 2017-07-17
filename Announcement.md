@@ -1,4 +1,4 @@
-### FIRST ANNOUNCEMENT::game_die::mahjong::game_die: FRIDAY BOARD GAME :game_die::mahjong::game_die:
+### FIRST ANNOUNCEMENT::mahjong::game_die: FRIDAY BOARD GAME :game_die::mahjong:
 
 This Friday we plan having a game day: 
 * Games: **UNO**, **MONOPOLY** and the **AVALON** :XD. 
