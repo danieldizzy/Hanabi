@@ -16,7 +16,7 @@ Hi guys I will tell you the schedule of Saturday's [Hanabi](http://adachikanko.n
 
 The plan is to meet at Shibuya for lunch and then go to the Hanabi later in the evening. (Do something inbetween)
 
-###Lina and her Family will meet us at the Hanabi Station :5:30pm or we meet somewhere and walk to the Hanabi together.
+### Lina and her Family will meet us at the Hanabi Station :5:30pm or we meet somewhere and walk to the Hanabi together.
 
 * Meeting time for lunch **12 :30 pm** 
 * Meeting point: **[Shibuya Station](https://goo.gl/maps/msb6HFRduCt)**  or at the [Restaurant](http://www.mkrestaurants.co.jp/shop/ "MK Restaurant Shabushabu Menu")
