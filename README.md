@@ -1,4 +1,4 @@
-# FIRST ANNOUNCEMENT: FRIDAY BOARD GAME 
+### FIRST ANNOUNCEMENT: FRIDAY BOARD GAME 
 
 
 This Friday we plan having a game day: We will have the UNO, MONOPOLY and the AVALON :XD. TIME from 6:30 ~ till last train.
@@ -6,11 +6,11 @@ This Friday we plan having a game day: We will have the UNO, MONOPOLY and the AV
 We plan buying some Chicken From Costco to eat as dinner, Dara and I will buy the Chicken on Friday and then we will bring it to the lab. We can burrow some drinks from the lab :D except some soft drinks. 
 
 Kindly inform me if you would like to Join. The more the better feel free to invite a lab mate or friend. 
-*******END OF ANNOUNCEMENT************
+* **END OF ANNOUNCEMENT**
 
 
 
-# SECOND ANNOUNCEMENT: SATURDAY HANABI
+### SECOND ANNOUNCEMENT: SATURDAY HANABI
 Hi guys I will tell you the schedule of Saturday's Hanabi and Lunch. 
 
 The plan is to meet at Shibuya for lunch and then go to the Hanabi later in the evening. (Do something inbetween)
