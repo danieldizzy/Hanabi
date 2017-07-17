@@ -1,1 +1,1 @@
-# Details about a small gathering event.
+# Details about a small gathering.
